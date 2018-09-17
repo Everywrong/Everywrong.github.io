@@ -1,1 +1,0 @@
-# Everywrong.github.io
